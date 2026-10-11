@@ -5,5 +5,5 @@
   
 “𝒩𝑒𝑒𝒹 𝓉𝑜 𝒹𝒾𝑒.”
 
-<img src=IMG_1157.gif>
-<img src=IMG_1158.gif>
+<img src=IMG_1158.gif width=110>
+<img src=IMG_1157.gif width=90% height=30>
