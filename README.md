@@ -31,3 +31,8 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y73jvka2jzry5yg6ea7iu44psu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
+<br>
+
+ <div align=right>
+<img alt="Static Badge" src="https://img.shields.io/badge/Dreamers-1111-lavender?style=flat&labelColor=%238962A2">
+
