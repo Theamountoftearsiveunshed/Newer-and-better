@@ -6,7 +6,7 @@
 “ 𝒩𝑒𝑒𝒹 𝓉𝑜 𝒹𝒾𝑒 ⸝⸝ ” ﹒  ◡◡𖥻 ׁ ׅ 
 
 ════════
-
+<img src=Untitled8_20261012183301.png>
 <img src=IMG_1158.gif width=110>
 <br>
-<img src=IMG_1157.gif width=60% height=50>
+<img src=IMG_0670.gif width=60% height=50>
