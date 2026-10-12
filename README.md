@@ -10,7 +10,7 @@
 
 “𝘈𝘸𝘸𝘸…𝘵𝘩𝘦𝘳𝘦 𝘺𝘰𝘶 𝘢𝘳𝘦.ᐟ.ᐟ.ᐟ”
 
-(I love their mother and son relationship,it’s so wholesome)
+(𝘐 𝘭𝘰𝘷𝘦 𝘵𝘩𝘦𝘪𝘳 𝘮𝘰𝘵𝘩𝘦𝘳 𝘢𝘯𝘥 𝘴𝘰𝘯 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱,𝘪𝘵’𝘴 𝘴𝘰 𝘸𝘩𝘰𝘭𝘦𝘴𝘰𝘮𝘦.ᐟ.ᐟ…)
 
 <img src=Untitled12_20261012193210.png>
 
