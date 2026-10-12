@@ -12,7 +12,7 @@
 
 (I love their mother and son relationship,it’s so wholesome)
 
-════════
+<img src=Untitled12_20261012193210.png>
 
 <img src=IMG_1158.gif width=110>
 <br>
